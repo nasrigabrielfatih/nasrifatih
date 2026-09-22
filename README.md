@@ -1,4 +1,4 @@
-# Hi, I'm Nasri Fatih  
+# Hi, I'm Nasri Gabriel Fatih  
 Neuroscientist | Data Scientist  
 
 Postdoctoral Scientist at @University of Oxford 
